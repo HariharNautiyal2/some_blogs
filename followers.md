@@ -1,6 +1,7 @@
 # Free Followers
 
 <h5>To get Followers we have to visit some follower spammer  websites</h5>
+You can get upto 10 Followers / 1 day
 <ol>
 <li>
 <h5>
@@ -12,8 +13,8 @@
 
 
 </h5>
-<br>
-You can get upto 10 Followers / 1 day
+
+
 </li>
 </ol>
 
