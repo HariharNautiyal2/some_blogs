@@ -12,4 +12,4 @@ What fun it is to ride and sing a sleighing song tonight<br>
 Jingle bells, jingle bells, jingle all the way<br>
 Oh what fun it is...
 
-## By Titiksh Nautiyal
+By Titiksh Nautiyal
