@@ -18,3 +18,4 @@ a company by Harihar Nautiyal
 
 
 [Are you mine class mate visit notes section](https://apka.blog/repo/notes)
+[If you want to make any pre built blog in this platform dm me your content](https://instagram.com/craftbyhn)
