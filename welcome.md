@@ -15,3 +15,6 @@ Apka Blog is currently under development, but we are working hard to launch it a
 Thank you for your interest and support. We can’t wait to see you on Apka Blog!
 
 a company by Harihar Nautiyal
+
+
+[Are you mine class mate visit notes section](https://apka.blog/repo/notes)
