@@ -17,5 +17,7 @@ Thank you for your interest and support. We can’t wait to see you on Apka Blog
 a company by Harihar Nautiyal
 
 
-[Are you mine class mate visit notes section](https://apka.blog/repo/notes)
+[Are you mine class mate visit notes section](https://www.apka.blog/repo/notes)
+<br>
+
 [If you want to make any pre built blog in this platform dm me your content](https://instagram.com/craftbyhn)
